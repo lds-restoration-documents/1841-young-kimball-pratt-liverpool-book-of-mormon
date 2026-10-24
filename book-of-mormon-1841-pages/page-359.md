@@ -1,0 +1,12 @@
+<!-- image 359 -->
+**Header:** BOOK OF ALMA. | 351
+
+<!-- cont --> to the restoration of many thousands of the Lamanites to the knowledge of the truth; and he hath shewn forth his power in them, and he will also still shew forth his power in them, unto future generations; therefore they shall be preserved; therefore I command you, my son Helaman, that ye be diligent in fulfilling all my words, and that ye be diligent in keeping the commandments of God, as they are written.
+
+And now, I will speak unto you concerning those twenty-four plates, that ye keep them, that the mysteries and the works of darkness, and their secret works, or the secret works of those people, who have been destroyed, may be made manifest unto this people; yea, all their murders, and robbings, and their plunderings, and all their wickedness, and abominations, may be made manifest unto this people; yea, and that ye preserve these directors. For behold, the Lord saw that his people began to work in darkness, yea, work secret murders and abominations; therefore the Lord said, if they did not repent, they should be destroyed from off the face of the earth. And the Lord said, I will prepare unto my servant Gazelem, a stone, which shall shine forth in darkness unto light, that I may discover unto my people who serve me, that I may discover unto them the works of their brethren: yea, their secret works, their works of darkness, and their wickedness and abominations. And now my son, these directors were prepared, that the word of God might be fulfilled, which he spake, saying: I will bring forth out of darkness unto light, all their secret works and their abominations; and except they repent, I will destroy them from off the face of the earth; and I will bring to light all their secrets and abominations, unto every nation that shall hereafter possess the land. And now my son, we see that they did not repent; therefore they have been destroyed, and thus far the word of God has been fulfilled; yea, their secret abominations have been brought out of darkness, and made known unto us.
+
+And now my son, I command you that ye retain all their oaths, and their covenants, and their agreements in their secret abominations; yea, and all their signs and their wonders ye shall retain from this people, that they know them not, lest peradventure they should fall into darkness also, and be destroyed. For behold, there is a
+
+---
+
+Footer: M 5

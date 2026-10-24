@@ -1,0 +1,11 @@
+<!-- image 618 -->
+**Header:** 610 | BOOK OF ETHER.
+
+<!-- cont --> now I know that this love which thou hast had for the children of men, is charity; wherefore, except men shall have charity, they cannot inherit that place which thou hast prepared in the mansions of thy father. Wherefore, I know by this thing which thou hast said, that if the Gentiles have not charity, because of our weakness, that thou wilt prove them, and take away their talent, yea, even that which they have received, and give unto them who shall have more abundantly.
+
+And it came to pass that I prayed unto the Lord that he would give unto the Gentiles grace, that they might have charity. And it came to pass that the Lord said unto me, if they have not charity, it mattereth not unto thee, thou hast been faithful; whrefore thy garments shall be made clean. And because thou hast seen thy weakness, thou shalt be made strong, even unto the sitting down in the place which I have prepared in the mansions of my Father. And now I, Moroni, bid farewell unto the Gentiles, yea, and also unto my brethren whom I love, until we shall meet before the judgment seat of Christ, where all men shall know that my garments are not spotted with your blood; and then shall ye know that I have seen Jesus, and that he hath talked with me face to face, and that he told me in plain humility, even as a man telleth another in mine own language, concerning these things; and only a few have I written, because of my weakness in writing. And now I would commend you to seek this Jesus of whom the prophets and apostles have written, that the grace of God the Father, and also the Lord Jesus Christ, and the Holy Ghost, which beareth record of them, may be, and abide in you for ever. Amen.
+
+<!-- short centred rule printed above the chapter heading -->
+## CHAPTER VI.
+
+And now I, Moroni, proceed to finish my record concerning the destruction of the people of whom I have been writing. For behold, they rejected all the words of Ether; for he truly told them of all things, from the beginning of man; and that after the waters had receded from off the face of this land, it became a choice land above all other lands, a chosen land of the Lord; wherefore the Lord would have that all men should serve him

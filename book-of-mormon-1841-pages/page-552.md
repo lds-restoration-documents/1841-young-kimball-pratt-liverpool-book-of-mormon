@@ -1,0 +1,11 @@
+<!-- image 552 -->
+**Header:** 544 | BOOK OF NEPHI.
+
+Behold, I will send you Elijah the prophet before the coming of the great and dreadful day of the Lord; and he shall turn the heart of the fathers to the children, and the heart of the children to their fathers, lest I come and smite the earth with a curse.
+
+And now it came to pass that when Jesus had told these things, he expounded them unto the multitude, and he did expound all things unto them, both great and small. And he saith, these scriptures which ye had not with you, the Father commanded that I should give unto you, for it was wisdom in him that they should be given unto future generations. And he did expound all things, even from the beginning until the time that he should come in his glory; yea, even all things which should come upon the face of the earth, even until the elements should melt with fervent heat, and the earth should be wrapt together as a scroll, and the heavens<!-- uncertain: the n of heavens is damaged and looks like r. --> and the earth should pass away; and even unto the great and last day, when all people, and all kindreds, and all nations and tongues shall stand before God, to be judged of their works, whether they be good or whether they be evil; if they be good, to the resurrection of everlasting life; and if they be evil, to the resurrection of damnation, being on a parallel, the one on the one hand, and the other on the other hand according to the mercy, and the justice, and the holiness which is in Christ, who was before the world began.
+
+<!-- short centred rule printed above the chapter heading -->
+## CHAPTER XII.
+
+And now there cannot be written in this book, even a hundredth part of the things which Jesus did truly teach unto the people; but behold the plates of Nephi do contain the more part of the things which he taught the people; and these things have I written, which are a lesser part of the things which he taught the people; and I have written them to the intent that they may be brought again unto this people, from the Gentiles, according to the words which Jesus hath spoken. And when they shall have received this, which is expedient that they should have first, to try their faith, and if it

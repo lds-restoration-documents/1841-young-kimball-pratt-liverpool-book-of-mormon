@@ -1,0 +1,12 @@
+<!-- image 351 -->
+**Header:** BOOK OF ALMA. | 343
+
+<!-- cont --> full, drawn out in prayer unto him continually for your welfare, and also for the welfare of those who are around you.
+
+And now behold, my beloved brethren, I say unto you, do not suppose that this is all; for after ye have done all these things, if ye turn away the needy, and the naked, and visit not the sick and afflicted, and impart of your substance, if ye have, to those who stand in need; I say unto you, if ye do not any of these things, behold, your prayer is vain, and availeth you nothing, and ye are as hypocrites who do deny the faith; therefore, if ye do not remember to be charitable, ye are as dross, which the refiners do cast out, (it being of no worth,) and is trodden under foot of men.
+
+And now, my brethren, I would that after ye have received so many witnesses, seeing that the holy scriptures testify of these things, come forth and bring fruit unto repentance; yea, I would that ye would come forth and harden not your hearts any longer; for behold, now is the time, and the day of your salvation; and therefore, if ye will repent and harden not your hearts, immediately shall the great plan of redemption be brought about unto you. For behold, this life is the time for men to prepare to meet God; yea, behold, the day of this life is the day for men to perform their labours. And now as I said unto you before, as ye have had so many witnesses, therefore I beseech of you, that ye do not procrastinate the day of your repentance until the end; for after this day of life, which is given us to prepare for eternity, behold, if we do not improve our time while in this life, then cometh the night of darkness, wherein there can be no labour performed. Ye cannot say, when ye are brought to that awful crisis, that I will repent, that I will return to my God. Nay, ye cannot say this; for that same spirit which doth possess your bodies at the time that ye go out of this life, that same spirit will have power to possess your body in that eternal world. For behold, if ye have procrastinated the day of your repentance, even until death, behold, ye have become subjected to the spirit of the devil, and he doth seal you his; therefore the spirit of the Lord hath withdrawn from you, and hath no place in you, and the devil hath all power over you; and this is the final state of the wicked. And this
+
+---
+
+Footer: M

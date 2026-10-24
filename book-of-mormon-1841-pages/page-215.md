@@ -1,0 +1,12 @@
+<!-- image 215 -->
+**Header:** BOOK OF MOSIAH. | 207
+
+<!-- cont --> them, that they would seek revenge, and also perish with them. And the king commanded them that they should not return; and they were angry with the king, and caused that he should suffer, even unto death by fire. And they were about to take the priests also and put them to death, and they fled before them.
+
+And it came to pass that they were about to return to the land of Nephi, and they met the men of Gideon. And the men of Gideon told them of all that had happened to their wives and their children; and that the Lamanites had granted unto them that they might possess the land<!-- uncertain: printed "l and" with a gap -->, by paying a tribute to the Lamanites of one half of all they possessed. And the people told the men of Gideon that they had slain the king, and his priests had fled from them farther into the wilderness. And it came to pass that after they had ended the ceremony, that they returned to the land of Nephi, rejoicing, because their wives and their children were not slain; and they told Gideon what they had done to the king.
+
+And it came to pass that the king of the Lamanites made an oath unto them, that his people should not slay them. And also Limhi, being the son of the king, having the kingdom conferred upon him by the people, made oath unto the king of the Lamanites, that his people should pay tribute unto him, even one half of all they possessed.
+
+And it came to pass that Limhi began to establish the kingdom, and to establish peace among his people. And the king of the Lamanites set guards round abou tthe land, that he might keep the people of Limhi in the la nd, that they might not depart into the wilderness; and he did support his guards out of the tribute which he did receive from the Nephites. And now king Limhi did have continual peace in his kingdom, for the space of two years. that the Lamanites did not molest them nro seek to destroy them.
+
+Now there was a place in Shemlon, where the daughters <!-- uncertain: printed "daug h-" at line end with a gap before the h --> of the Lamanites did gather themselves together to sing, aud to dance, and to make themselves merry. And it came to pass that there was one day a small number of them gathered together to sing and to dance. And now the priests of king Noah, being ashamed to return to the city of Nephi, yea, and also fearing that the people <!-- uncertain: printed "p eople" with a gap --> would slay them, therefore they durst not return to their wives

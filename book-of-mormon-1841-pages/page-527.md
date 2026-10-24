@@ -1,0 +1,11 @@
+<!-- image 527 -->
+**Header:** BOOK OF NEPHI. | 519
+
+<!-- cont --> pray ye, our Father who art in heaven, hallowed be thy name. Thy will be done on earth as it is in heaven. And forgive us our debts, as we forgive our debtors. And lead us not into temptation, but deliver us from evil. For thine is the kingdom, and the power, and the glory, for ever. Amen. For, if ye forgive men their trespasses, your heavenly father will also forgive you; but if ye forgive not men their trespasses, neither will your Father forgive your trespasses. Moreover, when ye fast, be not as the hypocrites, of a sad countenance, for they disfigure their faces, that they may appear unto men to fast. Verily, I say unto you, they have their reward. But thou, when thou fastest, anoint thy head, and wash thy face; that thou appear not unto men, to fast, but unto thy Father, who is in secret; and thy Father, who seeth in secret shall reward thee openly.
+
+Lay not up for yourselves treasures upon earth, where moth and rust doth corrupt, aad thieves break through and steal, but lay up for yourselves treasures in heaven, where neither moth nor rust doth corrupt, and where thieves do not break through nor steal. For where your treasure is, there will your heart be also. The light of the body is the eye, if therefore thine eye be single, thy whole body shall be full of light. But if thine eye be evil, thy whole body shall be full of darkness. If, therefore, the light that is in thee be darkness, how great is that darkness! No man can serve two masters, for either he will hate the one, and love the other; or else he will hold to the one and dispise the other. Ye cannot serve God and mammon.
+
+## CHAPTER VI.
+<!-- short centred rule printed above the chapter heading -->
+
+And now it came to pass that when Jesus had spoken these words, he looked upon the twelve whom he had chosen, and said unto them, remember the words which I have spoken. For behold, ye are they whom I have chosen to minister unto this people. Therefore I say unto you, take no thought for your life, what ye shall eat, or what ye shall drink: nor yet for your body, what ye shall put on. Is not the life more than meat, and the body than raiment? Behold the fowls of the air, for they

@@ -1,0 +1,12 @@
+<!-- image 422 -->
+**Header:** 414 | BOOK OF ALMA.
+
+<!-- cont --> rehearsed unto me the words of their mothers, saying, we do not doubt our mothers knew it.
+
+And it came to pass that I did return with my two thousand, against these Lamanites who had pursued us. And now behold, the armies of Antipus had overtaken them, and a terrible battle had commenced. The army of Antipus being weary, because of their long march in so short a space of time, were about to fall into the hands of the Lamanites; and had I not returned with my two thousand, they would have obtained their purpose; for Antipus had fallen by the sword, and many of his leaders, because of their weariness, which was occasioned by the speed of their march; therefore the men of Antipus being confused, because of the fall of their leaders, began to give way before the Lamanites.
+
+And it came to pass that the Lamanites took courage, and began to pursue them; and thus were the Lamanites pursuing them with great vigour, when Helaman came upon their rear with his two thousand, and began to slay them exceedingly, insomuch that the whole army of the Lamanites halted, and turned upon Helaman. Now when the people of Antipus saw that the Lamanites had turned them about, they gathered together their men, and came again upon the rear of the Lamanites.
+
+And now it came to pass that we, the people of Nephi, the people of Antipus, and I with my two thousand, did surround the Lamanites, and did slay them; yea, insomuch that they were compelled to deliver up their weapons of war, and also themselves as prisoners of war.
+
+And now it came to pass that when they had surrendered themselves up unto us, behold, I numbered those young men who had fought with me, fearing lest there were many of them slain. But behold, to my great joy, there had not one soul of them fallen to the earth; yea, and they had fought as if with the strength of God; yea, never was men known to have fought with such miraculous strength; and with such mighty power did they fall upon the Lamanites, that they did frighten them; and for this cause did the Lamanites deliver themselves up as prisoners of war. And as we had no place for our prisoners, that we could guard them to keep them from the armies of the Lamanites, therefore we sent them to the land of Zarahemla<!-- uncertain: the r of Zarahemla is worn and reads like i -->, and a part of those men who were

@@ -1,0 +1,10 @@
+<!-- image 310 -->
+**Header:** 302 | BOOK OF ALMA.
+
+## CHAPTER XIII.
+
+*An account of the preaching of Aaron and Muloki, and their brethren, to the Lamanites.*
+
+NOW when Ammon and his brethren separated themselves in the borders of the land of the Lamanites, behold, Aaron took his journey towards the land which was called by the Lamanites, Jerusalem; calling it after the land of their fathers' nativity; and it was away joining the borders of Mormon. Now the Lamanites, and the Amelekites, and the people of Amulon, had built a great city, which was called Jerusalem. Now the Lamanites, of themselves, were sufficiently hardened, but the Amalekites, and the Amulonites, were still harder; therefore they did cause the Lamanites that they should harden their hearts, that they should wax strong in wickedness, and their abominations.
+
+And it came to pass that Aaron came to the city of Jerusalem, and firstly began to preach to the Amalekites. And he began to preach to them in their synagogues, for they had built synagogues, after the order of the Nehors; for many of the Amalekites and the Amulonites were after the order of the Nehors. Therefore, as Aaron entered into one of their synagogues to preach unto the people, and as he was speaking unto them, behold there arose an Amalekite, and began to contend with him, saying, what is that thou hast testified? Hast thou seen an angel? Why do not angels appear unto us? Behold, are not this people as good as thy people? Thou also sayest, except we repent, we shall perish. How knowest thou the thought and intent of our heart? How knowest thou that we have cause to repent? How knowest thou that we are not a righteous people? Behold, we have built sanctuaries, and we do assemble<!-- uncertain: last letter printed like c (assemblc), read as e --> ourselves together to worship God. We do believe that God will save all men. Now Aaron said unto him, believest thou that the Son of God shall come to redeem mankind from their sins? And the man said unto him, we do not believe that thou knowest any such thing. We do not belive in these foolish traditions. We do not believe that thou

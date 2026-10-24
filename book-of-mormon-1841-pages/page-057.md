@@ -1,0 +1,13 @@
+<!-- image 057 -->
+<!-- handwritten pencil/ink note in the right margin, not transcribed -->
+**Header:** FIRST BOOK OF NEPHI. | 49 <!-- uncertain: the F of OF in the running head is damaged and looks like E -->
+
+And it came to pass that we did find upon the land of promise, as we journeyed in the wilderness, that there were beasts in the forests of every kind, both the cow and the ox, and the ass, and the horse, and the goat, and the wild goat, and all manner of wild animals, which were for the use of men. And we did find all manner of ore, both of gold and of silver, and of copper.
+
+And it came to pass that the Lord commanded me, wherefore I did make plates of ore, that I might engraven upon them the record of my people. And upon the the plates which I made, I did engraven the record of my father, and also our journeyings in the wilderness, and the prophecies of my father: and also many of mine own prophecies have I engraven upon them. And I knew not at the time when I made them, that I should be commanded of the Lord to make these plates: wherefore, the record of my father, and the genealogy of his fathers, and the more part of all our proceedings in the wilderness, are engraven upon those plates of which I have spoken; wherefore, the things which transpired before I made these plates, are, of a truth, more particularly made mention upon the first plates.
+
+And after I had made these plates by way of commandment, I Nephi, received a commandment, that the ministry and the prophecies, the more plain and precious parts of them should be written upon these plates; and that the things which were written, should be kept for the instruction <!-- uncertain: the t of instruction is worn and looks like c --> of my people, who should possess the land, and also for other wise purposes, which purposes are known unto the Lord; wherefore, I, Nephi, did make a record upon the other plates, which gives an account, or which gives a greater account of the wars, and contentions, and destructions of my people. And this have I done, and commanded my people what they should do, after I was gone, and that these plates should be handed down from one generation to another, or from one prophet to another, until further commandments of the Lord. <!-- uncertain: final d of Lord is clipped --> And an account of my making these plates shall be given <!-- uncertain: final n of given is worn --> hereafter: and then, behold, I proceed according to that which I have spoken; and this I do, that the more sacred things may be kept for the knowledge of my people. Nevertheless, I do not write any thing upon plates, save it be that I think it be sacred. And now, if I do err, even
+
+---
+
+Footer: c 2

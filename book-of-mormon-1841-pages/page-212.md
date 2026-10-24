@@ -1,0 +1,12 @@
+<!-- image 212 -->
+**Header:** 204 | BOOK OF MOSIAH.
+
+<!-- cont --> they were called the church of God, or the church of Christ, from that time forward.
+
+And it came to pass that whosoever was baptized by the power and authority of God, was added to his church.
+
+And it came to pass that Alma, having authority from God, ordained priests; even one priest to every fifty of their number did he ordain to preach unto them, and to teach them concerning the things pertaining to the kingdom of God. And he commanded them that they should teach nothing save it were the things which he had taught, and which had been spoken by the mouth of the holy prophets. Yea, even he commanded them that they should preach nothing save it were repentance and faith on the Lord, who had redeemed his people. And he commanded them that there should be no contention one with another, but that they should look forward with one eye, having one faith and one baptism; having their hearts knit together in unity and in love, one towards another. And thus he commanded them to preach. And thus they beeame <!-- uncertain: c of "became" looks like e, printed "beeame" --> the children of God. And he commanded them that they should observe the Sabbath day, and keep it holy, and also every day they should give thanks to the Lord their God. And he also commanded them that the priests whom he had ordained should labour with their own hands for their support; and there was one day in every week that was set apart that they should gather themselves together to teach the people, and to worship the Lord their God, and also as often as it was in their power, to assemble themselves together. And the priests were not to depend upon the people for their support; but for their labour they were to receive the grace of God, that they might wax strong in the spirit, having the knowledge of God, that they might teach with power and authority from God. And again Alma commanded that the people of the church should impart of their substance, every one according to that which he had; if he had more abundantly, he should impart more abundantly; and he that had but little, but little should be required; and to him that had not should be given. And thus they should impart of their substance, of their own free will and good desires towards God, and to those priests that stood in need, yea, and to every needy, naked soul. And this he said unto them, having been
+
+---
+
+Footer: H 5

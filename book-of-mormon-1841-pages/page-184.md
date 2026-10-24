@@ -1,0 +1,11 @@
+<!-- image 184 -->
+**Header:** 176 | BOOK OF MOSIAH.
+
+<!-- cont --> found at the right hand of God, for he shall know the name by which he is called: for he shall be called by the name of Christ.
+
+And now, it shall come to pass that whosoever shall not take upon them the name of Christ, must be called by some other name; therefore, he findeth himself on the left hand of God. And I would that ye should remember also, that this is the name that I said I should give unto you, that never should be blotted out, except it be through transgression; therefore, take heed that ye do not transgress, that the name be not blotted out of your hearts. I say unto you, I would that ye should remember to retain the name written always in your hearts, that ye are not found on the left hand of God, but that ye hear and know the voice by which ye shall be called, and also, the name by which he shall call you: for, how knoweth a man the master whom he has not served, and who is a stranger unto him, and is far from the thoughts and intents of his heart? And again: Doth a man take an ass which belongeth to his neighbour, and keep him? I say unto you, nay; he will not even suffer that he shall feed among his flocks, but will drive him away, and cast him out. I say unto you, that even so shall it be among you, if ye know not the name by which ye are called. Therefore, I would that ye should be steadfast and immovable<!-- uncertain: the v of immovable is blurred -->, always abounding in good works, that Christ, the Lord God Omnipotent, may seal you his, that you may be brought to heaven, that ye may have everlasting salvation and eternal life, through the wisdom, and power, and justice, and mercy of him, who created all things, in heaven and in earth, who is God above all. Amen.
+
+<!-- short centred rule printed above the chapter heading -->
+## CHAPTER IV.
+
+AND now king Benjamin thought it was expedient, after having finished speaking to the people, that he should take the names of all those who had entered into a covenant with<!-- uncertain: worn, printed like v:i.h --> God, to keep his commandments. And it came to pass that there was not one soul, except it were little children<!-- uncertain: worn, ch:ldren -->, but what had entered into the covenant, and had taken upon them the name of Christ.

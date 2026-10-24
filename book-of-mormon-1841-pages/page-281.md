@@ -1,0 +1,12 @@
+<!-- image 281 -->
+**Header:** BOOK OF ALMA. | 273
+
+<!-- cont --> yea, if we have hardened our hearts against the word, insomuch that it has not been found in us, then will our state be awful, for then we shall be condemned: for our words will condemn us, yea, all our works will condemn us; we shall not be found spotless; and our thoughts will also condemn us; and in this awful state, we shall not dare look up to our God; and we would fain be glad if we could command the rocks and the mountains to fall upon us, to hide us from his presence. But this cannot be; we must come forth and stand before him in his glory, and in his power, and in his might, majesty, and dominion, and acknowledge to our everlasting shame, that all his judgments are just; that he is just in all his works, and that he is merciful unto the children of men, and that he has all power to save every man that believeth on his name, and bringeth forth fruit meet for repentance.
+
+And now behold I say unto you, then cometh a death, even a second death, which is a spiritual death; then is a time that whosoever dieth in his sins, as to a temporal death, shall also die a spiritual death; yea, he shall die as to things pertaining unto righteousness; then is the time when their torments shall be as a lake of fire and brimstone, whose flames ascendeth up for ever and ever; and then is the time that they shall be chained down to an everlasting destruction, according to the power and captivity of satan; he having subjected them according to his will. Then I say unto you, they shall be as though there had been no redemption made; for they cannot be redeemed according to God's justice; and they cannot die, seeing there is no more corruption.
+
+Now it came pass thas when Alma had made an end of speaking these words, the people began to be more astonished; but there was one Antionah, who was a chief ruler among them, come forth and said unto him, what is this that thou hast said, that man should rise from the dead and be changed from this mortal to an immortal state, that the soul can never die? What does this scripture mean, which saith that<!-- uncertain: a small mark between saith and that, possibly a speck or a comma --> God placed cherubims and a flaming sword on the east of the garden of Eden, lest our first parents should enter and partake of the fruit of the tree of life, and live for ever? And thus we see that there was no possible chance that they should
+
+---
+
+Footer: K 3

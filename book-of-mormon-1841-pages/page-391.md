@@ -1,0 +1,12 @@
+<!-- image 391 -->
+**Header:** BOOK OF ALMA. | 383
+
+<!-- cont --> instruction and the same information of the Nephites; yea, having been instructed in the same knowledge of the Lord; nevertheless, it is strange to relate, not long after their dissensions, they became more hardened and impenitent, and more wild, wicked and ferocious, than the Lamanites; drinking in with the traditions of the Lamanites; giving way to indolence, and all manner of lasciviousness; yea, entirely forgetting the Lord their God.
+
+And now it came to pass that as soon as Amalickiah had obtained the kingdom, he began to inspire the hearts of the Lamanites against the people of Nephi; yea, he did appoint men to speak unto the Lamanites from their towers, against the Nephites; and thus he did inspire their hearts against the Nephites, insomuch, that in the latter end of the nineteenth year of the reign of the judges, he having accomplished his designs thus far; yea, having been made king over the Lamanites, he sought also to reign over all the land; yea, and all the people who were in the land, the Nephites as well as the Lamanites, therefore he had accomplished his design, for he had hardened the hearts of the Lamanites, and blinded their minds, and stirred them up to anger, insomuch that he had gathered together a numerous host, to go to battle against the Nephites. For he was determined, because of the greatness of the number of his people, to overpower the Nephites, and to bring them into bondage; and thus he did appoint chief captains of the Zoramites, they being the most acquainted with the strength of the Nephites, and their places of resort, and the weakest parts of their cities; therefore he appointed them to be chief captains over his armies.
+
+And it came to pass that they took their camp, and moved forth towards the land of Zarahemla, in the wilderness. Now it came to pass that while Amalickiah <!-- uncertain: the initial A of Amalickiah is worn --> had thus been obtaining power by fraud and deceit, Moroni, on the other hand, had been preparing the minds of the people to be faithful unto the Lord <!-- uncertain: Lord looks like Lerd, o worn --> their God; yea, he had been strengthening the armies of the Nephites, and erecting small forts, or places of resort; throwing up banks of earth round about, to enclose his armies, and also building walls of stone to encircle them about, round about their cities, and the borders of their lands; yea,
+
+---
+
+Footer: N 5

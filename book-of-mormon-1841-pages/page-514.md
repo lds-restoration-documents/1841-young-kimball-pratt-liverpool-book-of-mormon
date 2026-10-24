@@ -1,0 +1,11 @@
+<!-- image 514 -->
+**Header:** 506<!-- uncertain: the last digit of the folio is worn, read from the sequence --> | BOOK OF NEPHI.
+
+<!-- cont --> of this year, that were baptized unto repentance; and thus the more part of the year did pass away.
+
+<!-- short centred rule printed above the chapter heading -->
+## CHAPTER IV.
+
+AND now it came to pass that according to our record, and we know our record to be true, for behold, it was a just man who did keep the records; for he truly did many miracles in the name of Jesus; and there was not any man who could do a miracle in the name of Jesus, save he were cleansed every whit from his iniquity. And now it came to pass, if there was no mistake made by this man in the reckoning of our time, the thirty and third year had passed away, and the people began to look with great earnestness for the sign which had been given by the prophet Samuel, the Lamanite; yea, for the time that there should be darkness for the space of three days over the face of the land. And there began to be great doubtings and disputations among the people, notwithstanding so many signs had been given.
+
+And it came to pass in the thirty and fourth year, in the first month, in the fourth day of the month, there arose a great storm, such an one as never had been known in all the land; and there was also a great and terrible tempest; and there was terrible thunder, insomuch that it did shake the whole earth as if it was about to divide asunder; and there were exceeding sharp lightnings, such as never had been known in all the land. And the city of Zarahemla did take fire; and the city of Moroni did sink into the depths of the sea, and the inhabitants therfore, were drowned; and the earth was carried up upon the city of Moronihah, that in the place of the city thereof, there became a great mountain; and there was a great and terrible destruction in the land southward. But behold, there was a more great and terrible destruction in the land northward: for behold, the whole face of the land was changed, because of the tempest, and the whirlwinds, and the thunderings, and the lightenings, and the exceeding great quaking of the whole earth; and the highways were broken up, and

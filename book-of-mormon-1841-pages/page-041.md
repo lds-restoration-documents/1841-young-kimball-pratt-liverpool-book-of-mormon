@@ -1,0 +1,11 @@
+<!-- image 041 -->
+**Header:** FIRST BOOK OF NEPHI. | 33
+
+<!-- cont --> behold, the remainder shalt thou see; but the things which thou shalt see hereafter, thou shalt not write; for the Lord God hath ordained the apostle of the Lamb of God, that he should write them. And also others who have been, to them hath he shewn all things, and they have written them; and they are sealed up to come forth in their purity, according to the truth which is in the Lamb, in the own due time of the Lord, unto the house of Israel.
+
+And I, Nephi, heard and bear record, that the name of the apostle of the Lamb was John, according to the word of the angel. And behold I, Nephi, am forbidden that I should write the remainder of the things which I saw and heard; wherefore, the things which I have written sufficeth me; and I have not written but a small part of the things which I saw. And I bear record, that I saw the things which my father saw, and the angel of the Lord did make them known unto me. And now I make an end of speaking concerning the things which I saw, while I was carried away in the spirit: and if all the things which I saw are not written, the things which I have written are true. And thus it is. Amen.
+
+<!-- short centred rule printed above the chapter heading -->
+## CHAPTER IV.
+
+AND it came to pass that after I, Nephi, had been carried away in the spirit, and seen all these things, I returned to the tent my father. And it came to pass that I beheld my brethren, and they were disputing one with another, concerning the things which my father had spoken unto them; for he truly spake many great things unto them, which were hard to be understood, save a man should inquire of the Lord; and they being hard in their hearts, therefore they did not look unto the Lord as they ought. And now I, Nephi, was grieved because of the hardness of their hearts, and also, because of the things which I had seen, and knew they must unavoidably come to pass, because of the great wickedness of the children of men. And it came to pass that I was overcome because of my afflictions, for I considered that mine afflictions were great above all, because of the destructions of my people, for I had beheld their fall.

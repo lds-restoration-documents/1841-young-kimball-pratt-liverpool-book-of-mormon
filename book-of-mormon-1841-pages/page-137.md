@@ -1,0 +1,12 @@
+<!-- image 137 -->
+**Header:** BOOK OF JACOB. | 129
+
+<!-- cont --> this people which are called the people of Nephi. For he said that the history of his peeple <!-- uncertain: printed peeple, second e may be a damaged o or a --> should be engraven upon his other plates, and that I should preserve these plates, and hand them down unto my seed, from generation to generation. And if there were preaching which was sacred, or revelation which was great, or prophesying, that I should engraven the heads of them upon these plates, and touch upon them as much as it were possible, for Christ's sake, and for the sake of our people: for because of faith and great anxiety, it truly had been made manifest unto us concerning our people, what things should happen unto them. And we also had many revelations, and the spirit of much prophecy; wherefore, we knew of Christ and his kingdom, which should come. Wherefore, we labored diligently among our people, that we might persuade them to come unto Christ, and partake of the goodness of God, that they might enter into his rest, lest by any means he should swear in his wrath they should not enter in, as in the provocation in the days of temptation, while the children of Israel were in the wilderness. Wherefore, we would to God that we could persuade all men not to rebel against God, to provoke him to anger, but that all men would believe in Christ, and view his death, and suffer his cross and bear the shame of the world; wherefore, I, Jacob, take it upon me to fulfil the commandment of my brother Nephi.
+
+Now Nephi began to be old, and he saw that he must soon die; wherefore, he anointed a man to be a king and a ruler over his people now, according to the reigns of the kings. The people having loved Nephi exceedingly, he having been a great protector for them, having wielded the sword of Laban in their defence, and having labored in all his days for their welfare; wherefore, the people were desirous to retain in remembrance his name. And whoso should reign in his stead, were called by the people, second Nephi, third Nephi, &c. according to the reigns of the kings; and thus they were called by the people, let them be of whatever name they would.
+
+And it came to pass that Nephi died. Now the people which were not Lamanites, were Nephites; nevertheless, they were called Nephites, Jacobites, Josephites, Zoramites, Lamanites, Lemuelites, and Ishmaelites. But I,
+
+---
+
+Footer: F 2

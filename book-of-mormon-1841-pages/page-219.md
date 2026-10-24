@@ -1,0 +1,12 @@
+<!-- image 219 -->
+**Header:** BOOK OF MOSIAH. | 211
+
+<!-- cont --> of humility; and they did cry mightily to God; yea, even all the day long did they cry unto their God that he would deliver them out of their afflictions. And now the Lord was slow to hear their cry, because of their iniquities; nevertheless the Lord did hear their cries, and began to soften the hearts of the Lamanites, that they began to ease their burdens: yet the Lord did not see fit to deliver them out of bondage.
+
+And it came to pass that they began to prosper by degrees in the land, and began to raise grain more abundantly, and flocks, and herds, that they did not suffer with hunger. Now there was a great number of women, more than there was of men; therefore king Limhi commanded that every man should impart to the support of the widows and their children, that they might not perish with hunger: and this they did, because of the greatness of their number that had been slain. Now the people of Limhi kept together in a body as much as it was possible, and secure their grain, and their flocks; and the king himself did not trust his person without the walls of the city, unless he took his guards with him, fearing that he might by some means fall into the hands of the Lamanites. And he caused that his people should watch the land round about, that by some means they might take those priests that fled into the wilderness, who had stolen the daughters of the Lamanites, and that had caused such a great destruction to come upon them; for they were desirous to take them, that they might punish them: for they had come into the land of Nephi by night, and carried off their grain, and many of their precious things; therefore they laid wait for them.
+
+And it came to pass that there was no more disturbance between the Lamanites and the people of Limhi, even until the time that Ammon and his brethren came into the land. And the king having been without the gates of the city with his guard, discovered Ammon and his brethren; and supposing them to be priests of Noah, therefore he caused that they should be taken, and bound, and cast into prison. And had they been the priests of Noah, he would have caused that they should be put to death; but when he found that they were not, but that they were his brethren, and had come from the land of Zarahemla, he was filled with exceeding great joy. Now
+
+---
+
+Footer: H 9

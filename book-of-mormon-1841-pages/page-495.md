@@ -1,0 +1,12 @@
+<!-- image 495 -->
+**Header:** BOOK OF NEPHI. | 487
+
+<!-- cont --> day, and that night, and that day, which shall be as one day, as if there were no night, that they might know that their faith had not been vain.
+
+Now it came to pass that there was a day set apart by the unbelievers, that all those who believed in those traditions should be put to death, except the sign should come to pass which had been given by Samuel the prophet. Now it came to pass that when Nephi, the son of Nephi, saw this wickedness of his people, his heart was exceeding sorrowful. And it came to pass that he went out and bowed himself down upon the earth, and cried mightily to his God, in behalf of his people; yea, those who were about to be destroyed because of their faith in the tradition of their fathers. And it came to pass that he cried mightily unto the Lord, all the day; and behold, the voice of the Lord came unto him, saying, lift up your head and be of good cheer, for behold, the time is at hand, and on this night shall the sign be given, and on the morrow come I into the world, to shew unto the world that I will fulfill all that which I have caused to be spoken by the mouth of my holy prophets. Behold, I come unto my own, to fulfill all things which I have made known unto the children of men, from the foundation of the world, and do the will, both of the Father, and of the Son of the Father, because of me, and of the Son, because of my flesh. And behold, the time is at hand, and this night shall the sign be given.
+
+And it came to pass that the words which came unto Nephi were fulfilled, according as they had been spoken: for behold at the going down of the sun, there was no darkness; and the people began to be astonished, because there was no darkness when the night came. And there were many who had not believed the words of the prophets, fell to the earth, and became as if they were dead, for they knew that the great plan of destruction which they had laid for those who believed in the word of the prophets, had been frustrated, for the signal which had been given was already at hand; and they began to know that the Son of God must shortly appear; yea, in fine, all the people upon the face of the whole earth, from the west to the east, both in the land north and in the land south, were so exceedingly astonished, that they fell to the earth; for they knew that the prophets had
+
+---
+
+Footer: Q

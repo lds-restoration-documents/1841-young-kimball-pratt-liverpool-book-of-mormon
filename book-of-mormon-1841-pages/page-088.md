@@ -1,0 +1,11 @@
+<!-- image 088 -->
+**Header:** 80 | SECOND BOOK OF NEPHI.
+
+<!-- cont --> henceforth there shall no more come into thee, the uncircumcised and the unclean. Shake thyself from the dust; arise, sit down, O Jerusalem: loose thyself from the bands of thy neck, O captive daughter of Zion.
+
+<!-- short centred rule printed above the chapter heading -->
+## CHAPTER VI.
+
+AND now, my beloved brethren, I have read these things that ye might know concerning the covenants of the Lord; that he has covenanted with all the house of Israel; that he has spoken unto the Jews, by the mouth of his holy prophets, even from the beginning down, from generation to generation, until the time comes that they shall be restored to the true church and fold of God; when they shall be gathered home to the lands of their inheritance, and shall be established in all their lands of promise.
+
+Behold, my beloved brethren, I speak unto you these things that ye may rejoice, and lift up your heads for ever, because of the blessings which the Lord God shall bestow upon your children. For I know that ye have searched much, many of you, to know of things to come; wherefore I know that ye know that our flesh must wasts away aud die; nevertheless, in our bodies we shall see God. Yea, I know that ye know, that in the body he shall show himself unto those at Jerusalem, from whence we came; for it is expedient that it should be among them; for it behoveth the great Creator that he suffereth himself to become subject unto man in the flesh, and die for all men, that all men might become subject unto him.—For as death hath passed upon all men, to fulfil the merciful plan of the great Creator, there must needs be a power of resurrection, and the resurrection must needs come unto man by reason of the fall; and the fall came by reason of transgression; and because man became fallen, they were cut off from the presence of the Lord; wherefore it must needs be an infinite atonement; save it should be an infinite atonement, this corruption could not put on incorruption. Wherefore, the first judgment which came upon man, must needs have remained to an endless duration. And if so, this flesh must have laid down to rot and to crumble to its mother earth, to rise no more.

@@ -1,0 +1,12 @@
+<!-- image 043 -->
+**Header:** FIRST BOOK OF NEPHI. | 35
+
+<!-- cont --> among the house of Israel; they shall be grafted in, being a natural branch of the olive tree, into the true olive-tree; <!-- uncertain: hyphen in olive-tree is faint --> and this is what our father meaneth; and he meaneth that it will not come to pass, until after they are scattered by the Gentiles; and he meaneth that it shall come by way of the Gentiles, that the Lord may shew his power unto the Gentiles, for the very cause that he shall be rejected of the Jews, or of the house of Israel; wherefore, our father hath not spoken of our seed alone, but also of all the house of Israel, pointing to the covenant which should be fulfilled in the latter days; which covenant the Lord made to our father Abraham, saying, in thy seed shall all the kindreds of the earth be blessed.
+
+And it came to pass that I, Nephi, spake much unto them concerning these things; yea, I spake unto them concerning the restoration of the Jews, in the latter days; and I did rehearse unto them the words of Isaiah, who spake concerning the restoration of the Jews, or of the house of Israel; and after they were restored, they should no more be confounded, neither should they be scattered again. And it came to pass that I did speak many words unto my brethren, that they were pacified, and did humble themselves before the Lord.
+
+And it came to pass that they did speak unto me again, saying, what meaneth this thing which our father saw in a dream? What meaneth the tree which he saw? And I said unto them, it was a representation of the tree of life. And they said unto me, what meaneth the rod of iron which our father saw, that led to the tree? And I said unto them, that it was the word of God; and whoso would harken unto the word of God, and would hold fast unto it, they would never perish; neither could the temptations and the fiery darts of the adversary, overpower them unto blindness, to lead them away to destruction. Wherefore, I Nephi, did exhort them to give heed unto the word of the Lord; yea, I did exhort them with all the energies of my soul, and with all the faculty which I possessed, that they would give heed to the word of God, and remember to keep his commandments always in all things. And they said unto me, what meaneth the river of water which our father saw? And I said unto them, that the water which my father saw, was filthiness; and so much was his mind swallowed up in other things,
+
+---
+
+Footer: B 3

@@ -1,0 +1,11 @@
+<!-- image 138 -->
+**Header:** 130 | BOOK OF JACOB.
+
+<!-- cont --> Jacob, shall not hereafter distinguish them by these names, but I shall call them Lamanites that seek to destroy the people of Nephi; and those who are friendly to Nephi, I shall call Nephites, or the people of Nephi, according to the reigns of the kings.
+
+And now it came to pass that the people of Nephi, under the reign of the second king, began to grow hard in their <!-- uncertain: ink blot over the final r of their --> hearts, and indulge themselves somewhat in wicked practices, such as like unto David of old, desiring many wives and concubines, and also Solomon, his son: yea, and they also began to search much gold and silver, and began to be lifted up somewhat in pride; wherefore, I, Jacob, gave unto them these words as I taught them in the temple, having firstly obtained mine errand from the Lord. For I, Jacob, and my brother Joseph, had been consecrated priests, and teachers of this people, by the hand of Nephi. And we did magnify our office unto the Lord, taking upon us the responsibility, answering the sins of the people upon our own heads, if we did not teach them the word of God with all diligence: wherefore, by laboring with our mights, their blood might not come upon our garments; otherwise, their blood would come upon our garments, and we would not be found spotless at the last day.
+
+<!-- short centred rule printed above the chapter heading -->
+## CHAPTER II.
+
+THE words which Jacob, the brother of Nephi, spake unto the people of Nephi, after the death of Nephi:— Now, my beloved brethren, I, Jacob, according to the responsibility which I am under to God, to magnify mine office with soberness, and that I might rid my garments of your sins, I come up into the temple this day, that I might declare unto you the word of God; and ye yourselves know, that I have hitherto been diligent in the office of my calling; but I this day am weighed down with much more desire and anxiety for the welfare of your souls, than I have hitherto been. For behold, as yet, ye have been obedient unto the word of the Lord, which I have given unto you. But behold, hearken ye unto me, and know that by the help of the all-powerful

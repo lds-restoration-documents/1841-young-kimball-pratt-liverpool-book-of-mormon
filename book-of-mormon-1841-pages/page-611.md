@@ -1,0 +1,12 @@
+<!-- image 611 -->
+**Header:** BOOK OF ETHER. | 603
+
+refined in prison, and all manner of fine workmanship he did cause to be wrought in prison. And it came to pass that he did afflict the people with his whoredoms and abominations; and when he had reigned for the space of forty and two years, the people did raise up in rebellion against him, and there began to be war again in the land, insomuch that Riplakish was killed, and his descendants were driven out of the land.
+
+And it came to pass after the space of many years, Morianton, (he being a descendant of Riplakish,) gathered together an army of outcasts, and went forth and gave battle unto<!-- uncertain: t of unto looks worn, like l --> the people; and he gained power over many cities; and the war became exceeding sore, and did last for the space of many years, and he did gain power over all the land, and did establish himself king over all the land. And after that he had established himself king, he did ease the burden of the people, by which he did gain favour in the eyes of the people, and they did anoint him to be their king. And he did do justice unto the people, but not unto himself, because of his many whoredoms; wherefore he was cut off from the presence of the Lord. And it came to pass that Morianton built up many cities, and the people became exceeding rich under his reign, both in buildings, and in gold, and silver, and in raising grain, and in flocks, and herds, and such things which had been restored unto them. And Morianton did live to an exceeding great age, and then he begat Kim: and Kim did reign in the stead of his father; and he did reign eight years, and his father died. And it came to pass that Kim did not reign in righteousness, wherefore he was not favoured of the Lord. And his brother did raise up in rebellion against him, by which he did bring him into captivity; and he did remain in captivity all his days; and he begat sons and daughters in captivity; and in his old age he begat Levi, and he died.
+
+And it came to pass that Levi did serve in captivity after the death of his father, for the space of forty and two years. And he did make war against the king of the land, by which he did obtain unto himself the kingdom. And after he had obtained unto himself the kingdom, he did that which was right in the sight of the Lord; and the people did prosper in the land, and he
+
+---
+
+Footer: T 6

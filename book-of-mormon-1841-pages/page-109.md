@@ -1,0 +1,12 @@
+<!-- image 109 -->
+**Header:** SECOND BOOK OF NEPHI. | 101
+
+<!-- cont --> shall be taken away from off thy shoulder, and his yoke from off thy neck, and the yoke shall be destroyed because of the anointing. He is come to Aiath, he is passed to Migron; at Michmash he hath laid up his carriages; they are gone over the passage; they have taken up their lodging at Geba; Ramath is afraid; Gibeah of Saul is fled. Lift up the voice, O daughter of Gallim; cause it to be heard unto Laish, O poor Anathoth. Madmenah is removed<!-- uncertain: a vertical mark (speck or damaged type) between removed and the semicolon -->; the inhabitants of Gebim gather themselves to flee. As yet shall he remain at Nob that day; he shall shake his hand against the mount of the daughter of Zion, the hill of Jerusalem. Behold, the Lord, the Lord of hosts shall lop the bough with terror; and the high ones of stature shall be hewn down; and the haughty shall be humbled. And he shall cut down the thickets of the forests with iron, and Lebanon shall fall by a mighty one.
+
+And there shall come forth a rod out of the stem of Jesse, and a branch shall grow out of his roots; and the spirit of the Lord shall rest upon him, the spirit of wisdom and understanding, the spirit of counsel and might, the spirit of knowledge and of the fear of the Lord; and shall make him of quick understanding in the fear of the Lord: and he shall not judge after the sight of his eyes, neither reprove after the hearing of his ears: but with righteousness shall he judge the poor, and reprove with equity for the meek of the earth: and he shall smite the earth with the rod of his mouth, and with the breath of his lips shall he slay the wicked. And righteousness shall be the girdle of his loins, and faithfulness the girdle of his reins. The wolf also shall dwell with the lamb, and the leopard shall lie down with the kid; and the calf and the young lion and the fatling together; and a little child shall lead them. And the cow and the bear shall feed; their young ones shall lie down together; and the lion shall eat straw like the ox. And the sucking child shall play on the hole of the asp, and the weaned child shall put his hand on the cockatrice's den. They shall not hurt nor destroy in all my holy mountain: for the earth shall be full of the knowledge of the Lord, as the waters cover the sea.
+
+And in that day there shall be a root of Jesse, which shall stand for an ensign of the people; to it shall the
+
+---
+
+Footer: E 6

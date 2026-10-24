@@ -1,0 +1,12 @@
+<!-- image 187 -->
+**Header:** BOOK OF MOSIAH. | 179
+
+<!-- cont --> Lamanites, and are taxed with a tax which is grievous to be borne. And now, behold, our brethren will deliver us out of our bondage, or out of the hands of the Lamanites, and we will be their slaves: for it is better that we be slaves to the Nephites, than to pay tribute to the king of the Lamanites.
+
+And now, king Limhi commanded his guards that they should no more bind Ammon, nor his brethern, but caused that they should go to the hill which was north of Shilom, and bring their brethern into the city, that thereby they might eat, and drink, and rest themselves from the labors of their journey; for they had suffered many things: they had suffered hunger, thirst, and fatigue.
+
+And now, it came to pass on the morrow, that king Limhi sent a proclamation among all his people, that thereby they might gather themselves together to the temple, to hear the words which he should speak unto them. And it came to pass that when they had gathered themselves together, that he spake unto them in this wise, saying, O ye, my people, lift up your heads and be comforted: for behold, the time is at hand, or is not far distant, when we shall no longer be in subjection to our enemies, notwithstanding our many strugglings, which have been in vain; yet I trust there remaineth an effectual struggle to be made. Therefore, lift up your heads, and rejoice, and put your trust in God, in that God who was the God of Abraham, and Isaac, and Jacob; and also, that God who brought the children of Israel out of the land of Egypt, and caused that they should walk through the Red Sea on dry ground, and fed them with manna, that they might not perish in the wilderness; and many more things did he do for them. And again: That same God has brought our fathers out of the land of Jerusalem, and has kept and preserved his people, even until now. And behold, it is because of our iniquities and abominations, that has brought us into bondage. And ye all are witnesses this day, that Zeniff, who was made king over this people, he being over-zealous to inherit the land of his fathers, therefore being deceived by the cunning and craftiness of king Laman, who having entered into a treaty with king Zeniff, and having yielded up into his hands the possessions of a part of the land, or even the city of Lehi-Nephi, and the city of Shilom; and the land
+
+---
+
+Footer: G 9

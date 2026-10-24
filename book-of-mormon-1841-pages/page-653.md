@@ -1,0 +1,2 @@
+<!-- image 653 -->
+<!-- inside back cover, with a pasted-in printed newspaper clipping, not part of the 1841 book and not transcribed: a single paragraph of text about the end of the Florida Indian war and the treatment of the Indian tribes, ending with a dateline (WASHINGTON, December) that is cut off by the torn lower edge of the paper; a rule is printed below the dateline; a few letters are worn or blotted -->
