@@ -1,5 +1,5 @@
 <!-- image 604 -->
-**Header:** 596 | BOOK OF ETHER. <!-- uncertain: final mark of the running head is worn and looks like a comma; written as a period -->
+**Header:** 596 | BOOK OF ETHER.
 
 <!-- cont --> a law throughout all the land, which gave power unto the prophets that they should go whithersoever they would; and by this cause the people were brought unto repentance. And because the people did repent of their iniquities and idolatries, the Lord did spare them, and they began to prosper again in the land. And it came to pass that Shule begat sons and daughters in his old age. And there were no more wars in the days of Shule; and he remembered the great things that the Lord had done for his fathers in bringing them across the great deep into the promised land; wherefore he did execute judgment in righteousness all his days.
 

@@ -1,7 +1,7 @@
 <!-- image 233 -->
 **Header:** BOOK OF MOSIAH. | 225
 
-<!-- cont --> for their support, in all cases save it<!-- uncertain: the i of "it" looks like a worn dotless i --> were in sickness, or in much want: and doing these things, they did abound in the grace of God. And there began to be much peace again in the land; and the people began to be very numerous, and began to scatter abroad upon the face of the earth, yea, on the north and on the south, on the east and on the west, building large cities and villages in all quarters of the land. And the Lord did visit them and prosper them, and they became a large and a wealthy people.
+<!-- cont --> for their support, in all cases save it were in sickness, or in much want: and doing these things, they did abound in the grace of God. And there began to be much peace again in the land; and the people began to be very numerous, and began to scatter abroad upon the face of the earth, yea, on the north and on the south, on the east and on the west, building large cities and villages in all quarters of the land. And the Lord did visit them and prosper them, and they became a large and a wealthy people.
 
 Now the sons of Mosiah were numbered among the unbelievers; and also one of the sons of Alma was numbered among them, he being called Alma, after his father; nevertheless he became a very wicked and an idolatrous man. And he was a man of many words, and did speak much flattery to the people; therefore he led many of the people to do after the manner of his iniquities. And he became a great hinderment to the prosperity of the church of God; stealing away the hearts of the people; causing much dissension among the people; giving a chance for the enemy of God to exercise his power over them.
 

@@ -162,7 +162,7 @@ The devil in the form of an angel … 330
 
 Korihor trodden down … 331
 
-Alma's mission to Zoiamites332 <!-- uncertain: Zoiamites, r possibly worn -->
+Alma's mission to Zoramites 332
 
 Rameumptom (holy stand)333
 

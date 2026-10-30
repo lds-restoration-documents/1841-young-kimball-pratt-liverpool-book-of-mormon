@@ -1,7 +1,7 @@
 <!-- image 018 -->
 **Header:** 10 | FIRST BOOK OF NEPHI.
 
-<!-- cont --> I spake unto him as if it had been Laban. And I also spake unto him that I should carry the engravings which were upon the plates of brass, to my elder brethren, who were without the walls. And I also bade him that he should follow me. And he supposing that I spake of the brethren of the church, and that 1 <!-- uncertain: printed like the numeral 1, probably damaged I --> was truly that Laban whom I had slain, wherefore he did follow me. And he spake unto me many times concerning the elders of the Jews, as I went forth unto my brethren, who were without the walls.
+<!-- cont --> I spake unto him as if it had been Laban. And I also spake unto him that I should carry the engravings which were upon the plates of brass, to my elder brethren, who were without the walls. And I also bade him that he should follow me. And he supposing that I spake of the brethren of the church, and that 1 was truly that Laban whom I had slain, wherefore he did follow me. And he spake unto me many times concerning the elders of the Jews, as I went forth unto my brethren, who were without the walls.
 
 And it came to pass that when Laman saw me, he was exceedingly frightened, and also Lemuel and Sam. And they fled from before my presence; for they supposed it was Laban, and that he had slain me, and had sought to take away their lives also.
 

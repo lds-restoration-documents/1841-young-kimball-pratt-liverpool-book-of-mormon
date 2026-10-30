@@ -7,6 +7,6 @@ And it came to pass that when they saw that we were not strong, according to our
 
 And it came to pass that the Lamanites did come out with their numerous army against us. And when they had come and were about to fall upon us with the sword, I caused that my men, those who were with me, should retreat into the wilderness.
 
-And it came to pass that the Lamanites did follow after us with great speed, for<!-- uncertain: r of for is worn, looks like i --> they were exceedingly desirous to overtake us, that they might slay us; therefore they did follow us into the wilderness; and we did pass by in the midst of Gid and Teomner, insomuch that they were not discovered by the Lamanites.
+And it came to pass that the Lamanites did follow after us with great speed, for they were exceedingly desirous to overtake us, that they might slay us; therefore they did follow us into the wilderness; and we did pass by in the midst of Gid and Teomner, insomuch that they were not discovered by the Lamanites.
 
 And it came to pass that when the Lamanites had passed by, or when the army had passed by, Gid and Teomner did rise up from their secret places, and did cut off the spies of the Lamanites, that they should not return to the city. And it came to pass that when they had cut them off, they ran to the city, and fell upon the guards who were left to guard the city, insomuch that they did destroy them, and did take possession of the city. Now this was done because the Lamanites did suffer their whole army, save a few guards only, to be led away into the wilderness,

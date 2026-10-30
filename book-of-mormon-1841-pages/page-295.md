@@ -1,5 +1,5 @@
 <!-- image 295 -->
-**Header:** BOOK OF ALMA. | 2[illegible] <!-- uncertain: folio digits worn/blotted; expected 287 -->
+**Header:** BOOK OF ALMA. | 2[illegible] <!-- uncertain: only two glyphs seen at 3-5x: a clear 2 then a blotted 3-like character with a tail below; expected 287 -->
 
 ## CHAPTER XII.
 

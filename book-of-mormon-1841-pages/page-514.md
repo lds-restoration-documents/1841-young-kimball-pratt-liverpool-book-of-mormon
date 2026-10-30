@@ -1,5 +1,5 @@
 <!-- image 514 -->
-**Header:** 506<!-- uncertain: the last digit of the folio is worn, read from the sequence --> | BOOK OF NEPHI.
+**Header:** 506<!-- uncertain: at 4x the last digit is blotted on its upper right and could be 6 or 8; read 6 from the sequence (next page is 507) --> | BOOK OF NEPHI.
 
 <!-- cont --> of this year, that were baptized unto repentance; and thus the more part of the year did pass away.
 

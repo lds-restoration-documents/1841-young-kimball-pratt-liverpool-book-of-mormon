@@ -3,7 +3,7 @@
 
 <!-- cont --> and shall be brought and be arraigned before the bar of Christ the Son, and God the Father, and the holy Spirit, which is one eternal God, to be judged according to their works, whether they be good or whether they be evil.
 
-Now behold I have spoken unto you concerning the death of the mortal body, and also concerning the resurrection of the mortal body. I say unto you, that this mortal body<!-- uncertain: a small raised mark between mortal and body, possibly a hyphen or a speck --> is raised to an immortal body; that is from death; even from the first death, unto life, that they can die no more; their spirits uniting with their bodies, never to be divided; thus the whole becoming spiritual and immortal, that they can no more see corruption.
+Now behold I have spoken unto you concerning the death of the mortal body, and also concerning the resurrection of the mortal body. I say unto you, that this mortal body<!-- uncertain: at 4x a small raised dash-like mark after the l of mortal and before body, with the l damaged; hyphen or speck unsettled --> is raised to an immortal body; that is from death; even from the first death, unto life, that they can die no more; their spirits uniting with their bodies, never to be divided; thus the whole becoming spiritual and immortal, that they can no more see corruption.
 
 Now when Amulek had finished these words, the people began again to be astonished, and also Zeezrom began to tremble. And thus ended the words of Amulek, or this is all that I have written.
 

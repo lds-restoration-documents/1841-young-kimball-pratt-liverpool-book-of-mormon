@@ -1,7 +1,7 @@
 <!-- image 446 -->
 **Header:** 438 | BOOK OF HELAMAN.
 
-Now these are not all the sons of Pahoron, (for he had many,) but these are they who did contend for the judgment seat; therefore they did cause three divisions among the people. Neverthelesss<!-- uncertain: appears to be printed with three s's -->, it came to pass that Pahoran was appointed by the voice of the people to be chief judge and a governor over the people of Nephi.
+Now these are not all the sons of Pahoron, (for he had many,) but these are they who did contend for the judgment seat; therefore they did cause three divisions among the people. Neverthelesss, it came to pass that Pahoran was appointed by the voice of the people to be chief judge and a governor over the people of Nephi.
 
 And it came to pass that Pacumeni, when he saw that he could not obtain the judgment seat, he did unite with the voice of the people. But behold, Paanchi, and that part of the people that were desirous that he should be their governor, was exceeding wroth; therefore he was about to flatter away those people to rise up in rebellion against their brethren.
 

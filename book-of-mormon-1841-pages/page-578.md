@@ -1,5 +1,5 @@
 <!-- image 578 -->
-**Header:** 570 | BOOK OF MORMON. <!-- uncertain: final mark of the head looks like a comma or damaged period -->
+**Header:** 570 | BOOK OF MORMON.
 
 ## CHAPTER III.
 

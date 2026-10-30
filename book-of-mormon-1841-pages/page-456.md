@@ -1,5 +1,5 @@
 <!-- image 456 -->
-**Header:** 448 | BOOK OF HELAMAN; <!-- uncertain: the mark after HELAMAN in the running head is a damaged or raised semicolon/colon, not a full stop -->
+**Header:** 448 | BOOK OF HELAMAN.
 
 <!-- cont --> city to city, even until they had retained the one half of their property, and the one half of all their lands. And thus ended the sixty and first year of the reign of the judges.
 

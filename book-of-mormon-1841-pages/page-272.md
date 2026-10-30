@@ -1,5 +1,5 @@
 <!-- image 272 -->
-**Header:** 264 <!-- uncertain: the 6 of the folio is worn and looks like G --> | BOOK OF ALMA.
+**Header:** 264 | BOOK OF ALMA.
 
 <!-- cont --> those who will be baptized unto repentance, through faith on his name; therefore prepare ye the way of the Lord, for the time is it hand that all men shall reap a reward of their works, according to that which they have been: if they have been righteous, they shall reap the salvation of their souls, according to the power and deliverance of Jesus Christ; and if they have been evil, they shall reap the damnation of their souls, according to the power and captivation of the devil. Now behold, this is the voice of the angel, crying unto the people. And now my beloved brethren, for ye are my brethren, and ye had ought to be beloved, and ye had ought to bring forth works which are meet for repentance, seeing that your hearts have been grossly hardened against the word of God, and seeing that ye are a lost and a fallen people.
 

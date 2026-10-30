@@ -6,7 +6,7 @@
 <!-- short centred rule printed above the chapter heading -->
 ## CHAPTER X.
 
-Now I, Moroni, write somewhat as seemeth me gocd; <!-- uncertain: printed gocd, worn o --> and I write unto my brethren, the Lamanites; and I
+Now I, Moroni, write somewhat as seemeth me good; <!-- uncertain: third letter of good at 5x is an open-right bowl with a top beak, c-like; could be wear of o, so expected o kept --> and I write unto my brethren, the Lamanites; and I
 
 ---
 

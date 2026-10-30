@@ -3,7 +3,7 @@
 
 <!-- cont --> end of speaking to the sons and daughters of Laman, he caused the sons and daughters of Lemuel to be brought before him. And he spake unto them, saying: Behold, my sons and my daughters, who are the sons and the daughters of my second son; behold, I leave unto you the same blessing which I left unto the sons and daughters of Laman; wherefore, thou shalt not utterly be destroyed; but in the end thy seed shall be blessed.
 
-And it came to pass that when my father had made an end of speaking unto them, behold, he spake unto the sons of Ishmael, yea, and even all his household. And after he had made an end of speaking unto them, he spake unto Sam, saying: Blessed art thou, and thy seed: for thou shalt inherit the land, like unto thy brother Nephi. And thy seed shall be numbered with his seed; and thou shalt be even like unto thy brother, and thy seed like unto his seed; and thou shalt be blessed in all tny<!-- uncertain: printed tny, first letter n or m-like, read as n --> days.
+And it came to pass that when my father had made an end of speaking unto them, behold, he spake unto the sons of Ishmael, yea, and even all his household. And after he had made an end of speaking unto them, he spake unto Sam, saying: Blessed art thou, and thy seed: for thou shalt inherit the land, like unto thy brother Nephi. And thy seed shall be numbered with his seed; and thou shalt be even like unto thy brother, and thy seed like unto his seed; and thou shalt be blessed in all tny days.
 
 And it came to pass after my father Lehi had spoken unto all his household, according to the feelings of his heart, and the spirit of the Lord which was in him, he waxed old. And it came to pass that he died, and was buried.
 

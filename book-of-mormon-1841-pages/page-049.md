@@ -13,4 +13,4 @@ And it came to pass that I, Nephi, did make a bellows wherewith to blow the fire
 
 ---
 
-Footer: C 1 <!-- uncertain: signature mark at foot, small and faint -->
+Footer: C 1

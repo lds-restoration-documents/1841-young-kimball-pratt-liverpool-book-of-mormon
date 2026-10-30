@@ -1,7 +1,7 @@
 <!-- image 637 -->
 **Header:** BOOK OF MORONI. | 629
 
-<!-- cont --> the pride of this nation, or the people of the Nephites, hath proven their destruction, except they should repent. Pray for them, my son, that repentance may may come unto them. But behold, I fear lest the spirit hath ceased striving with them; and in this part of the land they are also seeking to put down all power and authority, which cometh from God; and they are denying the Holy Ghost. And after rejecting so great a knowledge, my son, they must perish soon, unto the fulfilling ef <!-- uncertain: ef, possibly worn of --> the prophecies which were spoken by the prophets, as well as the words of our Saviour himse'f <!-- uncertain: worn l in himself --> . Farewell, my son, until I shall write unto you, or shall meet you again. Amen.
+<!-- cont --> the pride of this nation, or the people of the Nephites, hath proven their destruction, except they should repent. Pray for them, my son, that repentance may may come unto them. But behold, I fear lest the spirit hath ceased striving with them; and in this part of the land they are also seeking to put down all power and authority, which cometh from God; and they are denying the Holy Ghost. And after rejecting so great a knowledge, my son, they must perish soon, unto the fulfilling ef the prophecies which were spoken by the prophets, as well as the words of our Saviour himself. Farewell, my son, until I shall write unto you, or shall meet you again. Amen.
 
 <!-- short centred rule printed above the chapter heading -->
 ## CHAPTER IX.

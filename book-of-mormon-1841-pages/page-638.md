@@ -1,5 +1,5 @@
 <!-- image 638 -->
-**Header:** 630 | BOOK OF MORONI. <!-- uncertain: final mark of the head is worn; written as a period -->
+**Header:** 630 | BOOK OF MORONI.
 
 <!-- cont --> all righteousness, and rest our souls in the kingdom of God.
 

@@ -1,5 +1,5 @@
 <!-- image 516 -->
-**Header:** 508 <!-- uncertain: the first digit is worn and looks like 3; read as 5 from the sequence --> | BOOK OF NEPHI.
+**Header:** 508 | BOOK OF NEPHI.
 
 <!-- cont --> before this great and terrible day, and then would our brethren have been spared, and they would not have been burned in that great city Zarahemla. And in another place they were heard to cry and mourn, saying O that we had repented before this great and terrible day, and had not killed and stoned the prophets, and cast them out: then would our mothers, and our fair daughters, and our children have been spared, and not have been buried up in that great city Moronihah; and thus were the howlings of the people great and terrible.
 

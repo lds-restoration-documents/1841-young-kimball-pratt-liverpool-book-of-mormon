@@ -1,7 +1,7 @@
 <!-- image 293 -->
 **Header:** BOOK OF ALMA. | 285
 
-Now Zoram and his two sons, knowing that Alma was high priest over the church, and having heard that he had the spirit of prophecy, therefore they went unto him and desired of him to know whether the Lord would that they should go into the wilderness in search of their brethren, who had been taken captive by the Lamanites.
+<!-- cont --> Now Zoram and his two sons, knowing that Alma was high priest over the church, and having heard that he had the spirit of prophecy, therefore they went unto him and desired of him to know whether the Lord would that they should go into the wilderness in search of their brethren, who had been taken captive by the Lamanites.
 
 And it came to pass that Alma inquired of the Lord concerning the matter. And Alma returned and said unto them, behold the Lamanites will cross the river Sidon in the south wilderness, away up beyond the borders of the land of Manti. And behold there shall ye meet them, on the east of the river Sidon and there the Lord will deliver unto thee thy brethren who have been taken captive by the Lamanites.
 

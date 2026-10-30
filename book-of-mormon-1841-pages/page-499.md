@@ -1,7 +1,7 @@
 <!-- image 499 -->
 **Header:** BOOK OF NEPHI. | 491
 
-<!-- cont --> sore<!-- uncertain: the first letter of the page is clipped/worn; read as s of sore -->; nevertheless, the people of Nephi did gain some advantage of the robbers insomuch that they did drive them back out of their lands into the mountains, and into their secret places. And thus ended the fourteenth year. And in the fifteenth year they did come forth against the people of Nephi; and because of the wickedness of the people of Nephi, and their many contentions and dissensions, the Gadianton robbers did gain many advantages over them. And thus ended the fifteenth year, and thus were the people in a state of many afflictions; and the sword of destruction did hang over them, insomuch that they were about to be smitten down by it, and this because of their iniquity.
+<!-- cont --> sore; nevertheless, the people of Nephi did gain some advantage of the robbers insomuch that they did drive them back out of their lands into the mountains, and into their secret places. And thus ended the fourteenth year. And in the fifteenth year they did come forth against the people of Nephi; and because of the wickedness of the people of Nephi, and their many contentions and dissensions, the Gadianton robbers did gain many advantages over them. And thus ended the fifteenth year, and thus were the people in a state of many afflictions; and the sword of destruction did hang over them, insomuch that they were about to be smitten down by it, and this because of their iniquity.
 
 <!-- short centred rule printed above the chapter heading -->
 ## CHAPTER II.

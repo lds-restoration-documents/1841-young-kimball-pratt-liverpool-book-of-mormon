@@ -5,4 +5,4 @@
 
 ---
 
-Footer: o 8 <!-- uncertain: signature mark, first character looks like a small o or 2 -->
+Footer: o 8 <!-- uncertain: signature mark, first character is a small worn round o-like glyph (possibly a 2), second is 8 -->

@@ -80,9 +80,9 @@ PAGE
 
 647 Women and children sacrificed to idols … 567
 
-Mormon took the records hid in Shim … 567 <!-- uncertain: Mormon, first printed as worn Moımon -->
+Mormon took the records hid in Shim … 567 <!-- uncertain: Mormon, first printed Moımon: the r is a bare stem, arm worn away -->
 
-Mormon repented of his oath, aod took command … 567 <!-- uncertain: Mormon, worn as above; aod printed -->
+Mormon repented of his oath, aod took command … 567 <!-- uncertain: Mormon, r worn to a bare stem as above; aod printed plainly -->
 
 Coming forth of records … 568
 
@@ -118,7 +118,7 @@ Decree of God, choice land … 583
 
 Free from bondage … 584
 
-Four years in tents at Moriancumer … 584 <!-- uncertain: Moriancumer, m worn -->
+Four years in tents at Moriancumer … 584
 
 Lord talked three hours … 584
 

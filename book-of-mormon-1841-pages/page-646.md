@@ -28,7 +28,7 @@ Alma to Shiblon … 354
 
 Alma to Corianton … 355
 
-Unqarponable sin … 356 <!-- uncertain: Unqarponable, printed with what looks like q -->
+Unqarponable sin … 356
 
 Resurrection … 357
 
@@ -152,7 +152,7 @@ THE BOOK OF HELAMAN … 437
 
 Pahoran died … 437
 
-Pahorau appointed judge … 438 <!-- uncertain: Pahorau, last letter of the first word may be worn n -->
+Pahoran appointed judge … 438
 
 Kishkumen slew Pahoran … 438
 

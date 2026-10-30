@@ -9,4 +9,4 @@ And it came to pass that the angel spake unto me again, saying, look! And I look
 
 ---
 
-Footer: B <!-- uncertain: the numeral after B is clipped/damaged -->
+Footer: B <!-- uncertain: after B at 6x only a faint broken vertical stroke, no clear numeral -->

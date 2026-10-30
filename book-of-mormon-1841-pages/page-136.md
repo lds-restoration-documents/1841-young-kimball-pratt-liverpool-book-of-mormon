@@ -1,7 +1,7 @@
 <!-- image 136 -->
 **Header:** 128 | SECOND BOOK OF NEPHI.
 
-<!-- cont --> are not the words of Christ, judge ye: for Christ will shew unto you, with power and great glory, <!-- uncertain: a small raised mark after glory looks like a speck, not an apostrophe --> that they are his words, at the last day; and you and I shall stand face to face before his bar; and ye shall know that I have been commanded of him to write these things, notwithstanding my weakness: and I pray the Father in the name of Christ, that many of us, if not all, may be saved in his kingdom, at that great and last day.
+<!-- cont --> are not the words of Christ, judge ye: for Christ will shew unto you, with power and great glory, that they are his words, at the last day; and you and I shall stand face to face before his bar; and ye shall know that I have been commanded of him to write these things, notwithstanding my weakness: and I pray the Father in the name of Christ, that many of us, if not all, may be saved in his kingdom, at that great and last day.
 
 And now, my beloved brethren, all those who are of the house of Israel, and all ye ends of the earth, I speak unto you, as the voice of one crying from the dust: farewell until that great day shall come; and you that will not partake of the goodness of God, and respect the words of the Jews, and also my words, and the words which shall proceed forth out of the mouth of the Lamb of God, behold, I bid you an everlasting farewell, for these words shall condemn you at the last day: for what I seal on earth, shall be brought against you at the judgment bar; for thus hath the Lord commanded me, and I must obey. Amen.
 

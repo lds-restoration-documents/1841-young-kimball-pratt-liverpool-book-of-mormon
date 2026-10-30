@@ -1,5 +1,5 @@
 <!-- image 600 -->
-**Header:** 592 | BOOK OF ETHER. <!-- uncertain: final mark of the running head is worn and looks like a colon or semicolon; read as a period -->
+**Header:** 592 | BOOK OF ETHER.
 
 <!-- cont --> the water, and also food for their flocks and herds, and whatsoever beast, or animal, or fowl that they should carry with them. And it came to pass that when they had done all these things, they got aboard of their vessels or barges, and set forth into the sea, commending themselves unto the Lord their God. And it came to pass that the Lord God caused that there should a furious wind blow upon the face of the waters, towards the promised land; and thus they were tossed upon the waves of the sea before the wind. And it came to pass that they were many times buried in the depths of the sea, because of the mountain waves which broke upon them, and also the great and terrible tempests which were caused by the fierceness of the wind.
 

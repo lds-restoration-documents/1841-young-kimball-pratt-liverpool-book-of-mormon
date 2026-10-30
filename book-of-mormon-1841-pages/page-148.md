@@ -1,7 +1,7 @@
 <!-- image 148 -->
 **Header:** 140 | BOOK OF JACOB.
 
-And it came to pass that the servant said unto his master, how comest thou hither to plant this tree, or this branch of the tree? for behold, it was the poorest spot in all the land of thy vineyard. And the Lord of the vineyard said unto him, counsel me not: I knew that it was a poor spot of ground; wherefore, I said unto thee, I have nourished it this long time; and thou beholdest <!-- uncertain: the b of beholdest is worn and looks like h --> that it hath brought forth much fruit.
+And it came to pass that the servant said unto his master, how comest thou hither to plant this tree, or this branch of the tree? for behold, it was the poorest spot in all the land of thy vineyard. And the Lord of the vineyard said unto him, counsel me not: I knew that it was a poor spot of ground; wherefore, I said unto thee, I have nourished it this long time; and thou heholdest that it hath brought forth much fruit.
 
 And it came to pass that the Lord of the vineyard said unto his servant, look hither: behold, I have planted another branch of the tree also; and thou knowest that this spot of ground was poorer than the first. But, behold the tree: I have nourished it this long time, and it hath brought forth much fruit; therefore, gather it, and lay it up, against the season, that I may preserve it unto mine own self.
 
