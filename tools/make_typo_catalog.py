@@ -12,6 +12,10 @@ import argparse
 import re
 from pathlib import Path
 
+import sys
+sys.path.insert(0, str(Path(__file__).resolve().parent))
+from frontmatter import strip_frontmatter  # noqa: E402
+
 ROOT = Path(__file__).resolve().parents[1]
 
 # (printed, should be, note). `printed` is matched as a whole word, case-sensitive; a tuple (regex, label) matches a pattern.
