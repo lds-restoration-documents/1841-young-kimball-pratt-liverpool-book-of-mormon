@@ -16,6 +16,7 @@ python3 tools/make_plaintext.py     # book-of-mormon-1841.txt
 python3 tools/make_sparse.py        # book-of-mormon-1841-sparse.txt
 python3 tools/check_structure.py [--allow-gaps]
 ```
+The two `.txt` files start with one `# title (AI draft, no full human proofread) - repo URL` line (`txt_header()` in `tools/frontmatter.py`; the sparse one says `sparse, AI draft`), then a blank line; the `.md` has YAML frontmatter.
 `tools/prepare_images.py` (needs `~/.venvs/lds-transcribe/bin/python`) extracts each PDF page's image uncropped to `work/img/pNNNN.jpg` (gitignored); `--zoom Z --box L,T,R,B` makes an enlarged region for a doubtful spot. `tools/make_review_checklist.py` builds `work/review/checklist.html`. Rules for transcribers are in `tools/transcription-spec.md`; blind proofreading in `tools/proofread-spec.md`.
 
 ## Rules

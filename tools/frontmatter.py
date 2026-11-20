@@ -8,3 +8,12 @@ def strip_frontmatter(t):
         if end != -1:
             return t[end + 5:].lstrip('\n')
     return t
+
+
+REPO = 'https://github.com/lds-restoration-documents/1841-young-kimball-pratt-liverpool-book-of-mormon'
+
+
+def txt_header(sparse=False):
+    """The single header line (plus a blank line) that starts each .txt output."""
+    return (f"# The Book of Mormon (Liverpool, 1841) ({'sparse, ' if sparse else ''}"
+            f"AI draft, no full human proofread) - {REPO}\n\n")
