@@ -7,7 +7,7 @@ publication_year: 1841
 source_scan: https://www.josephsmithpapers.org/paper-summary/book-of-mormon-1841/ (page images downloaded with Archive Viewer)
 transcription_method: AI-assisted transcription from page images (Claude Sonnet 5.5); one blind AI proofread of every text page; second AI pass and owner review of uncertain readings; no full human proofread
 repository: https://github.com/lds-restoration-documents/1841-young-kimball-pratt-liverpool-book-of-mormon
-version: "v1.0.0 (2026-10-31, 327b56d)"
+version: "v1.0.2 (2026-11-20, 327b56d)"
 ---
 
 <!-- page 005 -->
